@@ -1,1 +1,1 @@
-
+I'm Huzefa. This website was created by me as a project for Girls Who Code's Summer Immersion Program. The fact that so many individuals throughout the world—including those in my own country—go to bed without food is what motivated me to create this website. It makes me unconscious that it is so obvious but is still ignored. I sincerely hope that viewing my website encouraged you to learn more and give back.
